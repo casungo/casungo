@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-You can find my info at https://casungo.cf
+You can find my info at https://casungo.top
